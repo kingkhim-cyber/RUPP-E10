@@ -31,4 +31,4 @@
 31. [Norm Sreykeo](https://www.facebook.com/sreykeo.norm.2025)
 32. [Chin Daniel](https://www.facebook.com/niel.ros.52)
 33. [Heng Chetra](https://www.facebook.com/heng.chetra.5473)
-34. Chea Kunthea [FB](https://www.facebook.com/cheakunthea515) | [Linkedin](https://www.linkedin.com/in/chea-kunthea-07b80934b/)
+34. Chea Kunthea [DOB](24 June 2005) | [FB](https://www.facebook.com/cheakunthea515) | [Linkedin](https://www.linkedin.com/in/chea-kunthea-07b80934b/)
